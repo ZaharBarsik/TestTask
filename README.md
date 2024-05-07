@@ -9,6 +9,8 @@
 
 3
 ![изображение](https://github.com/ZaharBarsik/TestTask/assets/88744414/f5850655-25a0-467b-b359-8ed2eea2421c)
+4
+![изображение](https://github.com/ZaharBarsik/TestTask/assets/88744414/c855d095-9d19-454b-a47c-28a3bf5ed6bd)
 
 
 
